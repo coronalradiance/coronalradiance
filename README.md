@@ -6,6 +6,10 @@
 
 <img width="1000" height="1000" alt="760dd23b" src="https://github.com/user-attachments/assets/8d85d8f4-bfa1-4a20-937a-b2e7622e2a8b" />
 
-<img align="right" width="700" height="700" alt="Untitled design" src="https://github.com/user-attachments/assets/fd0e9f79-7d5d-4c7e-a0ce-3ecd415199ce" />
+<img align="right" width="700" height="504" alt="Untitled design (3)" src="https://github.com/user-attachments/assets/141908ef-18b6-4d14-972e-905ada4d7aba" />
 
-<img align="center" width="700" height="700" src="https://github.com/user-attachments/assets/9494f61a-d1cd-4b4c-ae15-08718e276ed7" />
+<img width="1000" height="1000" alt="image41" src="https://github.com/user-attachments/assets/9ae3d59e-c45e-4e14-be44-182be82d4322" />
+
+<img align="right" width="1000" height="1000" src="https://github.com/user-attachments/assets/3701db27-cebd-4b9a-bfaf-cd0c06e19503" />
+
+# Take care of yourself! Remember to eat and drink today!
