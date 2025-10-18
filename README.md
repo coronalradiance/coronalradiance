@@ -1,15 +1,50 @@
-![cred: horrorists on tumblr](https://github.com/user-attachments/assets/6b3962c2-f62f-4c0d-aa56-755f1a23a623)
-## "Go... become a hero."
-<img src="https://github.com/user-attachments/assets/98812c40-dcc3-4f07-8cc7-ba9f4c913da0" width="700" height="700"> 
+<img width="1000" height="500" align="center" src="https://github.com/user-attachments/assets/9e28741e-a9be-4f2d-b0e1-0c4068ea9bb8" />
 
-<img src="https://github.com/user-attachments/assets/e395f5ab-e0f1-4413-9474-25f474301543" width="300" heigth="300">
+#  ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ───────୨ৎ
 
-<img width="1000" height="1000" alt="760dd23b" src="https://github.com/user-attachments/assets/8d85d8f4-bfa1-4a20-937a-b2e7622e2a8b" />
+<p align="center">
+  ✧˚ ༘ ⋆｡˚ $\color{#BB88EE}{Rui !}$ or Asuka < 3 ༘⋆𖦹 🎪 🎈 ♡⸝⸝ taken ~ $\color{#BB88EE}{08/11𖹭}$ ・・・・・・
+</p>
 
-<img align="right" width="700" height="504" alt="Untitled design (3)" src="https://github.com/user-attachments/assets/141908ef-18b6-4d14-972e-905ada4d7aba" />
+<p align="center">
+°‧🫧⋆.ೃ࿔*:･ $\color{#BB88EE}{PL/EN}$ ⋆. 𐙚 ̊  transmasc . $\color{#BB88EE}{he / him}$ ⋆˚꩜｡ 17 ⸝⸝ 20/07 🎂
+</p>
 
-<img width="1000" height="1000" alt="image41" src="https://github.com/user-attachments/assets/9ae3d59e-c45e-4e14-be44-182be82d4322" />
+<p align="center">
+. ݁₊ ⊹ . ݁˖ . ݁ $\color{#BB88EE}{C+H / INT}$ ok! —⊹₊⟡⋆ BASIC DNI CRITERIA! ⋆˚𝜗𝜚˚⋆
+</p>
 
-<img align="right" width="1000" height="1000" src="https://github.com/user-attachments/assets/3701db27-cebd-4b9a-bfaf-cd0c06e19503" />
+# 
+<img width="1000" height="300" src="https://github.com/user-attachments/assets/60712182-60bb-44a4-b3f8-f97fd5784087" />
 
-# Take care of yourself! Remember to eat and drink today!
+**<p align="center"> $\color{#BB88EE}{BYI! ⭑.ᐟ}$ </p>**
+
+<p align="center"> ༘⋆ PLEASE refrain from showing me gore and anything that has blood in it! Thank you in advance :3 ·˚ ༘
+</p>
+<p align="center"> ༘⋆ I'd appreciate it if you used tone tags with me! I can't tell if you're joking or not otherwise. ·˚ ༘
+</p>
+<p align="center"> ༘⋆ If I do something wrong, tell me right away! I want to improve for you! ·˚ ༘
+</p>
+<p align="center"> ༘⋆ Please DNI if you're a Phairene shipper. ·˚ ༘
+</p>
+
+#
+
+<img width="1000" height="300" src="https://github.com/user-attachments/assets/846c83f6-ccde-494d-9200-655c0b262045" />
+
+**<p align="center"> $\color{#BB88EE}{.°•INT! ⋆.ೃ࿔*:･}$ </p>**
+<p align="center"> ‧₊˚ ┊ Hoyoverse games likers $\color{#BB88EE}{[Especially HSR/GI]}$
+<p align="center"> ‧₊˚ ┊ GUILTY GEAR FANS. PLEASE 🥹 I LOVE YOU IF YOU'RE A GG FAN
+<p align="center"> ‧₊˚ ┊ talkative people, I'd love to hear you yap about your interests :D!
+<p align="center"> ‧₊˚ ┊ ANYONE CAN INTERACT!! I love meeting new people ^-^ Please don't be afraid to whisp me or text me on Discord (.coronalradiance)!
+
+#
+
+<img width="1000" height="370" src="https://github.com/user-attachments/assets/c7999a8e-7f86-42ae-90c8-2a2288113da8" />
+
+**<p align="center">COOL PEOPLE MENTION !!</p>**
+
+<p align="center"> $\color{#FF7722}{KYOUYA❤︎}$, Mika, Kyu, Soy, Pheej, Jannet, Rosa, Jesh, Memely, Toyau, Vani, Alex, Blair, Caelus
+
+#
+<p align="center"> Pssst, remember to take care of yourself!! Stay hydrated and make sure to eat! Rui loves ya, remember! Keep smiling, because every little smile makes the world brighter :3
