@@ -36,7 +36,7 @@
 <p align="center"> ‧₊˚ ┊ Hoyoverse games likers $\color{#BB88EE}{[Especially HSR/GI]}$
 <p align="center"> ‧₊˚ ┊ GUILTY GEAR FANS. PLEASE 🥹 I LOVE YOU IF YOU'RE A GG FAN
 <p align="center"> ‧₊˚ ┊ talkative people, I'd love to hear you yap about your interests :D!
-<p align="center"> ‧₊˚ ┊ ANYONE CAN INTERACT!! I love meeting new people ^-^ Please don't be afraid to whisp me or text me on Discord (.coronalradiance)!
+<p align="center"> ‧₊˚ ┊ ANYONE CAN INTERACT!! I love meeting new people ^-^ Please don't be afraid to whisp me or text me on Discord (rui_kmshro)!
 
 #
 
